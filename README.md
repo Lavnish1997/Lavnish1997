@@ -8,7 +8,7 @@
 
 - 🌱 I’m currently learning **Full Stack Web Development**
 
-- 💬 Ask me about **Frontend Web Development,Python,Data Science**
+- 💬 Ask me about **Frontend Web Development,Backend Web Development,Python,Data Science**
 
 - 📫 How to reach me **lavnishsingh1997@gmail.com**
 
