@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **lavnishsingh1997@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/18QOPo9PfhlMCWlgX66V7z1tK4Oxi50h7/view?usp=drive_link](https://drive.google.com/file/d/18QOPo9PfhlMCWlgX66V7z1tK4Oxi50h7/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/18QOPo9PfhlMCWlgX66V7z1tK4Oxi50h7/view?usp=drive_link](https://drive.google.com/file/d/1lSMCur9QjlTJHeMumSyrzXowGhQ5KsiX/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
